@@ -12,7 +12,7 @@ Online (green icon) = Here! / Busy (red icon) = I'm available, just doing someth
 
 I usually play on ipad though which is.. easy for me to disconnect if im doing sumn.
 
-DNIS : radqueers, proship umbrella, (excluding recovering) queerphobes (bigots in general), and yumes with underage character while being over their age
+DNIS : radqueers, proship umbrella, (excluding recovering) queerphobes (bigots in general), and yumes with underage character while being over their age, pro-israel/pro-ice
 # I like... :
 ## FNaF ( even more specifically, the FNaF subfandom for GGY! )
 -----

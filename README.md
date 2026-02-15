@@ -7,6 +7,8 @@ How to tell if I can respond? My activity status!
 
 Online (green icon) = Here! / Busy (red icon) = I'm available, just doing something / Away (the moon icon) = Not there!
 
+I usually play on ipad though which is.. easy for me to disconnect if im doing sumn.
+
 # I like... :
 ## FNaF ( even more specifically, the FNaF subfandom for GGY! )
 -----
